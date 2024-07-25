@@ -1,0 +1,1 @@
+# 2114---Excel-l-gica-booleana-y-b-squeda-de-valores-con-IA
